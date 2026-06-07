@@ -179,6 +179,6 @@ Joining the IEEE CS Student Branch Chapter – USJ gives you access to:
 *IEEE Computer Society Student Branch Chapter*  
 *University of Sri Jayewardenepura · IEEE Sri Lanka Section · Region 10*
 
-**© 2024–2025 IEEE CS Student Branch Chapter, USJ. All rights reserved.**
+**© 2026 IEEE CS Student Branch Chapter, University of Sri Jayewardenepura. All rights reserved.**
 
 </div>
